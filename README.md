@@ -1,1 +1,0 @@
-# Practical-Guide-to-Genie-Spaces
